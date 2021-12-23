@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @sisaacstclair
+- 👀 I’m interested in projects in public health, supply chain, and finance.
+- 🌱 I’m currently studying statistics and computer science at Brigham Young University in Provo, Utah. 
+- 📫 You can reach me via my email sisaacstclair[at]gmail[dot]com. 
